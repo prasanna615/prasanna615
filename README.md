@@ -7,7 +7,7 @@
 ## 📍 Personal Info
 
 - 🏠 Location: Rameswaram, India  
-- 📱 Mobile: +91 6383211454  
+ 
 - 📧 Email: [prasannasharma79@gmail.com](mailto:prasannasharma79@gmail.com)  
 - 🔗 LinkedIn: [linkedin.com/in/ragavendraprasanna](https://www.linkedin.com/in/ragavendraprasanna/)
 
